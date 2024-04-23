@@ -1,0 +1,6 @@
+- 👋 Hi, we are @NaturCeredigion
+- 👀 We’re interested in tackling the biodiversity crisis
+- 🌱 We’re currently learning how to reach out to a wider audience
+- 💞️ We’re looking to collaborate on biodiversity projects in Ceredigion
+- 📫 How to reach me hi@naturceredigion.cymru
+- ⚡ Fun fact: Numbers of butterflies in Wales have fallen by 52% since 1976
